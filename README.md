@@ -1,0 +1,1 @@
+# Tugas1_Grafkom_G_672018181
